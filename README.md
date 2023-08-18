@@ -1,3 +1,4 @@
+![logo](https://github.com/Arifa-Akhi/ArifaAkter/blob/main/Blue%20and%20Black%20Corporate%20LinkedIn%20Banner.png)
 <h1 align="center">Hi 👋, I'm Arifa Akter</h1>
 <h3 align="center">A passionate software tester from Bangladesh</h3>
 
