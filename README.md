@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **arifaa1952@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/118fvgpXgO2dAVOtVfcqkJrp6l7Yo_4H_/view?pli=1](https://drive.google.com/file/d/118fvgpXgO2dAVOtVfcqkJrp6l7Yo_4H_/view?pli=1)
+- 📄 Know about my experiences [Click Here...](https://drive.google.com/file/d/118fvgpXgO2dAVOtVfcqkJrp6l7Yo_4H_/view?pli=1)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
